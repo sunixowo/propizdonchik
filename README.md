@@ -2,7 +2,7 @@
 
 ![jopa](https://i.imgur.com/A9f09xb.png)
 
-[whitecock](https://drive.google.com/file/d/15IFlJRkqetPBhSCBmi9X9ExQRDAnme2a/view?usp=sharing)
+[whitecock](https://drive.google.com/file/d/15IFlJRkqetPBhSCBmi9X9ExQRDAnme2a/view?usp=drivesdk)
 
 ![whitecock](https://i.imgur.com/IUaCiGa.png)
 
