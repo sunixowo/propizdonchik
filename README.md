@@ -15,3 +15,6 @@
 скрина нет
 
 ![](https://i.imgur.com/uDWPrar.jpg)
+
+[ryuk](https://drive.google.com/file/d/1IUvHTRrkE_Unz82sbhRipdl3N7cJcX4v/view?usp=sharing)
+![ryuk](https://i.imgur.com/uv9jhRB.png)
