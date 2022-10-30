@@ -20,4 +20,4 @@
 ![ryuk](https://i.imgur.com/uv9jhRB.png)
 
 [tuna](https://drive.google.com/file/d/1swnDGSmivoBL9F6017PaCJTHHx9peLQ7/view?usp=share_link)
-![tuna](https://www.google.com/url?sa=i&url=https%3A%2F%2Fmobile.twitter.com%2Fflyingtunaosu&psig=AOvVaw2fR0dOKih-4DvKXASoqZsR&ust=1667209226673000&source=images&cd=vfe&ved=0CA0QjRxqFwoTCIjLjMXUh_sCFQAAAAAdAAAAABAI)
+![tuna](https://i.imgur.com/teFbUsQ.png)
